@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Parkerhulian
-- 👀 I’m interested in Physics, maths, history
+- 👀 I’m interested in physics, maths, history
 - 📫 You can reach me at parkerhulian@163.com
 
 <!---
